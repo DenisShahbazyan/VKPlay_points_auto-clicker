@@ -1,0 +1,1 @@
+# VKPlay_points_auto-clicker
